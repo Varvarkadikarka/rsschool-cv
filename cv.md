@@ -12,9 +12,9 @@ I am going to take advantages of my desire to learn, growth mindset and solution
 
 ## EDUCATION
 
-| National Research University "Higher School Of Economics"                               |     |     | 2007-2012 |
-| ---------------------------------------------------------------------------------- | ------------ | ----------- | ---------------- |
-| Lawyer - Faculty of Law, Economics and Finance |    |    |     |
+| National Research University "Higher School Of Economics"                                           | 2007-2012 |
+| --------------------------                         | --------- |
+| Lawyer - Faculty of Law, Economics and Finance                 |
 
 ## SKILLS
 
