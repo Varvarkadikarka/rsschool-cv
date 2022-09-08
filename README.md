@@ -1,1 +1,1 @@
-https://Varvarkadikarka.github.io/rsschool-cv/cv
+https://Varvarkadikarka.github.io/rsschool-cv/
